@@ -2,12 +2,13 @@
 
 Characters
 
-| name    | power     |
-| ------- | --------- |
-| Roger   | fury      |
-| Rafaelo | instinct  |
-| Bruno   | skin      |
-| Amanda  | magnetism |
+| name           | power     |
+| -------------- | --------- |
+| Roger          | fury      |
+| Rafaelo (Rafa) | instinct  |
+| Bruno          | skin      |
+| Amanda         | magnetism |
+| Afonso (rock)  | plate     |
 
 ## Last moment on the Earth
 
