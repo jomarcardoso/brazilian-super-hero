@@ -2,8 +2,12 @@
 
 Characters
 
-| name  | power |
-| Roger | fury  |
+| name    | power     |
+| ------- | --------- |
+| Roger   | fury      |
+| Rafaelo | instinct  |
+| Bruno   | skin      |
+| Amanda  | magnetism |
 
 ## Last moment on the Earth
 
