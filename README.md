@@ -14,4 +14,8 @@ Characters
 
 ## Last moment on the Earth
 
-The Earth is devasted by the enemy. The only two survivors, Roger and 
+The Earth is devasted by the enemy.The
+only two survivors, Roger and Rafa are
+the last two human survivors. That place
+is rounded only by sand, dust and trash
+brought from a ruined big city next there.
