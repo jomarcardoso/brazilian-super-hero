@@ -54,6 +54,5 @@ through it and in the first moment it was
 unstable in the the head of the hammer and
 deformed the hammer head, but soon he
 stabilized the energy and restored the
-weapon shape. The sound of the was loud
-it would be awful and scary for common
-humans.
+weapon shape. The noise out loud would
+scare any common human.
