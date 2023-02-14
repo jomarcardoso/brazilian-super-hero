@@ -26,7 +26,8 @@ upper body is full of wounds with the left
 arm destroyed. Rafa is unable to move
 himself.
 
-Meanwhile Roger is shedding tears, by all
+Meanwhile Roger holding his hammer, face
+down and he is shedding tears, by all
 that happens, to his friends and family,
 and the whole world. Like I know, we weep
 when the emotion is high, not only the
@@ -36,3 +37,11 @@ crying by hatred. He is blaming himself
 for didn't be able to save the world
 and now he will be the last survivor and
 he doesn't agree this.
+
+The enemy ship is floating in the sky,
+getting the stolen resources. They won
+the war. The world is over, not only
+humans, but animals and the environment.
+The Earth can't recover itself and it will
+have the same destiny of Venus.
+
