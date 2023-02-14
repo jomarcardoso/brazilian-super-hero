@@ -45,3 +45,15 @@ humans, but animals and the environment.
 The Earth can't recover itself and it will
 have the same destiny of Venus.
 
+The hatred of Roger turned into wrath, and
+he holder his hammer stronger than ever.
+His uncontrolled energy now is straight
+like an aura, in other words as angel.
+When he got the hammer, the energy went
+through it and in the first moment it was
+unstable in the the head of the hammer and
+deformed the hammer head, but soon he
+stabilized the energy and restored the
+weapon shape. The sound of the was loud
+it would be awful and scary for common
+humans.
