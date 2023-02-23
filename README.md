@@ -65,4 +65,6 @@ huge ship. But like Rafa always said,
 are left standing". That act was a small
 mistake in as almost perfect plan of the
 enemy to loot the planet and leave
-unharmed.
+unharmed. They had never experienced
+the fury of the prince o princes after
+lost everything and blame himself for it.
