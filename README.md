@@ -46,7 +46,7 @@ The Earth can't recover itself and it will
 have the same destiny of Venus.
 
 The hatred of Roger turned into wrath, and
-he holder his hammer stronger than ever.
+he hold his hammer stronger than ever.
 His uncontrolled energy now is straight
 like an aura, in other words as angel.
 When he got the hammer, the energy went
@@ -56,3 +56,13 @@ deformed the hammer head, but soon he
 stabilized the energy and restored the
 weapon shape. The noise out loud would
 scare any common human.
+
+The superb of the invaders for easily
+defeat the human race again, made us
+trusting to put all collected in the same
+huge ship. But like Rafa always said,
+"the fight ends when none of your enemies
+are left standing". That act was a small
+mistake in as almost perfect plan of the
+enemy to loot the planet and leave
+unharmed.
