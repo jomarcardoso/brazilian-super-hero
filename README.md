@@ -61,6 +61,14 @@ most believed in Roger e his determination
 to do all needed to look after who he
 loves.
 
+Roger looked at his friend laying, and he
+saw him dead. Does he really said that
+words? Roger has imagined this? That were
+the last words of Rafa?
+
+We can't we barely know the human
+capabilities let alone 
+
 The hatred of Roger turned into wrath, and
 he hold his hammer stronger than ever.
 His uncontrolled energy now is straight
