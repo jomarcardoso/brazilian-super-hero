@@ -41,9 +41,25 @@ he doesn't agree this.
 The enemy ship is floating in the sky,
 getting the stolen resources. They won
 the war. The world is over, not only
-humans, but animals and the environment.
+humans, but animals and the environment
+are completely destroyed.
 The Earth can't recover itself and it will
-have the same destiny of Venus.
+have the same destiny of Venus the old
+home of the humans.
+
+While Roger was crying and holding his
+he have listened to Rafa speaking.
+
+_ Why you haven't given up yet?
+
+That phrase had always the answer:
+"because I have someone to fight for"
+it didn't make sense anymore cause had
+no one alive to protect. That words
+was the punishment from the person who
+most believed in Roger e his determination
+to do all needed to look after who he
+loves.
 
 The hatred of Roger turned into wrath, and
 he hold his hammer stronger than ever.
