@@ -64,12 +64,14 @@ loves.
 Roger looked at his friend laying, and he
 saw him dead. Does he really said that
 words? Roger has imagined this? That were
-the last words of Rafa?
+the last words of Rafa? We can't we barely know the human
+know the human capabilities let alone of a
+prince. Are they able to speak in our
+after die?
 
-We can't we barely know the human
-capabilities let alone 
-
-The hatred of Roger turned into wrath, and
+Doesn't matter what happen that moment,
+it's enough for Roger.
+The hatred of him turned into wrath, and
 he hold his hammer stronger than ever.
 His uncontrolled energy now is straight
 like an aura, in other words as angel.
