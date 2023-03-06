@@ -70,7 +70,10 @@ prince. What I know is that Rafa was so
 instinctive. He knew the animals feelings
 and and felt some unknown source messages.
 What I guess is that Rafa is with Roger
-fighting after having died.
+fighting after having died. I know that 
+no one can speak without a mouth and move
+with no body. But I don't know nothing
+about two spirits in one body.
 
 Doesn't matter what happen that moment,
 it's enough for Roger.
