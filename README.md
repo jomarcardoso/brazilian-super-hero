@@ -64,7 +64,7 @@ loves.
 Roger looked at his friend laying, and he
 saw him dead. Does he really said that
 words? Roger has imagined this? That were
-the last words of Rafa? We can't we barely know the human
+the last words of Rafa? We can't we barely
 know the human capabilities let alone of a
 prince. What I know is that Rafa was so
 instinctive. He knew the animals feelings
@@ -74,6 +74,18 @@ fighting after having died. I know that
 no one can speak without a mouth and move
 with no body, but I can't doubt that Rafa
 have sent his spirit to Roger's body.
+
+That moment I look at Roger's eyes and I
+saw Rafa's look, that wide eyes, not with
+the attention of a prey, but with the
+focus of a hunter. The eyes of Rafa
+disappeared, the message to Roger was
+sent. I believe that Roger has enough
+power to beat anyone, however he had no
+more motivation for this. I have know
+idea what Rafa has said to Roger before
+he has gone, but Rafa knew his friend, and
+what he needs to hear.
 
 Doesn't matter what happen that moment,
 it's enough for Roger.
@@ -88,18 +100,6 @@ deformed the hammer head, but soon he
 stabilized the energy and restored the
 weapon shape. The noise out loud would
 scare any common human.
-
-That moment I look at Roger's eyes and I
-saw Rafa's look, that wide eyes, not with
-the attention of a prey, but with the
-focus of a hunter. The eyes of Rafa
-disappeared, the message to Roger was
-sent. I believe that Roger has enough
-power to beat anyone, however he had no
-more motivation for this. I have know
-idea what Rafa has said to Roger before
-he has gone, but Rafa knew his friend, and
-what he needs to hear.
 
 The superb of the invaders for easily
 defeat the human race again, made us
