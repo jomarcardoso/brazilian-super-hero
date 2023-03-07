@@ -96,7 +96,7 @@ like an aura, in other words as angel.
 When he got the hammer, the energy went
 through it and in the first moment it was
 unstable in the the head of the hammer and
-deformed the hammer head, but soon he
+deformed it, but soon he
 stabilized the energy and restored the
 weapon shape. The noise out loud would
 scare any common human.
