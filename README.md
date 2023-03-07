@@ -72,8 +72,8 @@ and and felt some unknown source messages.
 What I guess is that Rafa is with Roger
 fighting after having died. I know that 
 no one can speak without a mouth and move
-with no body. But I don't know nothing
-about two spirits in one body.
+with no body, but I can't doubt that Rafa
+have sent his spirit to Roger's body.
 
 Doesn't matter what happen that moment,
 it's enough for Roger.
@@ -88,6 +88,18 @@ deformed the hammer head, but soon he
 stabilized the energy and restored the
 weapon shape. The noise out loud would
 scare any common human.
+
+That moment I look at Roger's eyes and I
+saw Rafa's look, that wide eyes, not with
+the attention of a prey, but with the
+focus of a hunter. The eyes of Rafa
+disappeared, the message to Roger was
+sent. I believe that Roger has enough
+power to beat anyone, however he had no
+more motivation for this. I have know
+idea what Rafa has said to Roger before
+he has gone, but Rafa knew his friend, and
+what he needs to hear.
 
 The superb of the invaders for easily
 defeat the human race again, made us
