@@ -11,6 +11,7 @@ Characters
 | Afonso (rock)    | plate        |
 | Liana            | regeneration |
 | Elizabete (Lisa) | strength     |
+| Graziele (Grazi) | intellect    |
 
 ## Last moment on the Earth
 
