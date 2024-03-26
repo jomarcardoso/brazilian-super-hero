@@ -21,7 +21,7 @@ They were taller than usual, and even at wrong grade. The regular kids saw them 
 
 Roger have a broke family, and he is usually sad by her mother's situation. The other kids took advantage of this weak boy to do bullying with him. He is called the "ET's son" an this hurt him. He was a big crying kid.
 
-
+Rafa was called by mean kids, 
 
 ## Last moment on the Earth
 
