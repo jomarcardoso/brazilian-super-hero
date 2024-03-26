@@ -13,6 +13,10 @@ Characters
 | Elizabete (Lisa) | strength     |
 | Graziele (Grazi) | intellect    |
 
+## At school
+
+In consequence of his mother sickness, Roger started at school later and Rafa with his father troupe of theater did not learned the first year of school.
+
 ## Last moment on the Earth
 
 The Earth is devasted by the enemy.The only two survivors, Roger and Rafa are the last two human survivors. That place is rounded only by sand, dust and trash brought from a ruined big near city.
