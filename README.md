@@ -15,7 +15,11 @@ Characters
 
 ## At school
 
-In consequence of his mother sickness, Roger started at school later and Rafa with his father troupe of theater did not learned the first year of school.
+In consequence of his mother sickness, Roger started at school later and Rafa with his father troupe of theater did not learned the first year of school. The repeat student and an unknown kid met at the same school.
+
+They were taller than usual, and even at wrong grade. The regular kids saw them and used to mock them.
+
+Roger have a broke family, and he is usually sad by her mother's situation. The other kids took advantage of this weak boy to do bullying with him. He was called the "ET's son"
 
 ## Last moment on the Earth
 
