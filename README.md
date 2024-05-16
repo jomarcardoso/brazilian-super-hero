@@ -23,6 +23,14 @@ Roger have a broke family, and he is usually sad by her mother's situation. The 
 
 Rafa was called by mean kids, 
 
+## The fight
+
+Bruno watching Zogan beating and even killing some of his team decide to stop that, run straight at Zogan and punch him hard on the chest. Zogan laughs with some teardrops, he does the same as always showing himself strong, but breathless to laugh much more and of course no time, because Bruno is there for vengeance, and attack again with a side kick. Zogan with hatred face, block the kick with his powerful and protected arm and try a counterattack in Bruno's ribs with his forearm shield lance. Bruno jump back with the hands on the ground and dodge the punch.
+
+Bruno stare at Zogan, and Zogan say the same as always "you are weaker than I taught". Bruno that not speak much, look for a half of second at your friend Tomas dead sitted with a hole in his neck, look at Zogan again for a second, but no seeing him, but thinking, and then nod confirming something to himself.
+
+Me and some people there saw something different different in Bruno that moment. A heat, that visual noise we see in the desert around Bruno. After that one second thinking he goes again and the same side kick, but with the right leg. The blade of the shin cross cutting the arm and stop after the middle of the chest.
+
 ## Last moment on the Earth
 
 The Earth is devasted by the enemy.The only two survivors, Roger and Rafa are the last two human survivors. That place is rounded only by sand, dust and trash brought from a ruined big near city.
