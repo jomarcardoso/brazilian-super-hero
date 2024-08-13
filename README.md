@@ -25,6 +25,8 @@ Rafa was called by mean kids,
 
 ## The fight
 
+Zogan was a strong super human with the resistant skin and plates.
+
 Bruno watching Zogan beating and even killing some of his team decide to stop that, run straight at Zogan and punch him hard on the chest. Zogan laughs with some teardrops, he does the same as always showing himself strong, but breathless to laugh much more and of course no time, because Bruno is there for vengeance, and attack again with a side kick. Zogan with hatred face, block the kick with his powerful and protected arm and try a counterattack in Bruno's ribs with his forearm shield lance. Bruno jump back with the hands on the ground and dodge the punch.
 
 Bruno stare at Zogan, and Zogan say the same as always "you are weaker than I taught". Bruno that not speak much, look for a half of second at your friend Tomas dead sitted with a hole in his neck, look at Zogan again for a second, but no seeing him, but thinking, and then nod confirming something to himself.
@@ -57,3 +59,7 @@ Doesn't matter what happen that moment, it's enough for Roger. The hatred of him
 His uncontrolled energy now is straight like an aura, in other words as angel. When he got the hammer, the energy went through it and in the first moment it was unstable in the the head of the hammer and deformed it, but soon he stabilized the energy and restored the weapon shape. The noise out loud would scare any common human.
 
 The superb of the invaders for easily defeat the human race again, made us trusting to put all collected in the same huge ship. But like Rafa always said, "the fight ends when none of your enemies are left standing". That act was a small mistake in as almost perfect plan of the enemy to loot the planet and leave unharmed. They had never experienced the fury of the prince o princes after lost everything and blame himself for it.
+
+## additional: future technologies 
+
+**snickers/trainers:** people run and ride their bikes instead of wait a shared transport. The government forbid you to drive your own vehicle, because it's dangerous and disturb the auto traffic.
