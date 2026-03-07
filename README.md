@@ -6,7 +6,7 @@ Characters
 | ---------------- | ------------ |
 | Roger            | fury         |
 | Rafaelo (Rafa)   | instinct     |
-| Bruno            | skin         |
+| Bruno   (Manco)  | skin         |
 | Amanda           | magnetism    |
 | Afonso (rock)    | plate        |
 | Liana            | regeneration |
